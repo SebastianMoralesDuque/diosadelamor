@@ -7,8 +7,7 @@ Te ayudo a recuperar a tu ser querido sin importar la distancia o el tiempo. Ofr
 - 🔮 Lectura de imagen y manos – Descubre verdades ocultas.
 - 🃏 Tarot espiritual – Respuestas claras sobre tu destino.
 
-
-El universo tiene un plan para ti, y juntos podemos descifrar sus señales. ✨❤️
+El universo tiene un plan para ti, y juntos podemos descifrar sus señales.✨❤️
  [Diosa del amor](https://www.facebook.com/MaestrosDeAmor2021/).
 
 > ### Fuentes e imagenes usadas
